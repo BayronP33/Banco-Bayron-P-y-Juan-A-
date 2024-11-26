@@ -1,3 +1,6 @@
+Bayron Andres Pedraza Ramirez
+Juan Angel Leguizamon Gonzalez
+
 1. ![1](https://github.com/user-attachments/assets/b4cb4d3b-56c9-42a7-aada-a4438aa5eb95)
 2. ![2](https://github.com/user-attachments/assets/cc9679c6-deea-41cc-b7e0-ebc587e8bf26)
 3. ![3](https://github.com/user-attachments/assets/ad5e1536-d416-4a06-877a-b354e0ece9ae)
